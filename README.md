@@ -1,1 +1,2 @@
 # Pablo-Cabrera
+Sacerdote e historiador. Nació en San Juan el 12 de septiembre de 1857. Era hijo de don Pablo José Cabrera. Realizó sus primeras letras en la escuela “Sarmiento” de su ciudad natal, bajo la dirección del maestro Vicente García Aguilera. A los doce años decidió seguir la carrera sacerdotal. Acompañado por su madre, en 1869 se trasladó a Córdoba con el objetivo de ingresar al seminario. Recién en 1870 pudo ingresar al Seminario Conciliar de Loreto con una beca.
